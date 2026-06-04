@@ -32,7 +32,7 @@
 结算T+0（Upwork要14天）
 
 用我的链接注册，送你$5红包 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 ```
 
 ### 文案2：赚钱角度
@@ -63,7 +63,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 
 一级10% + 二级5% + 三级2%
 试试看，说不定你也能月入过千 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 ```
 
 ### 文案4：安全角度
@@ -77,7 +77,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 
 运行6个月，零资金损失案例
 放心用，靠谱！👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 ```
 
 ### 文案5：对比角度
@@ -94,7 +94,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 
 还用Fiverr？out了！
 试试猎单宝，真香 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 ```
 
 ---
@@ -117,7 +117,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 ✅ T+0即时结算，现金流健康
 
 新用户注册送$5红包 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 
 有问题随时问我，已用3个月，亲测靠谱！
 ```
@@ -139,7 +139,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 
 我上月接了8单，赚了$4200
 想一起赚钱的私我 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 ```
 
 ### 文案3：创业交流群
@@ -156,7 +156,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 
 我们团队用了2个月，省下$5000+
 真心推荐给各位老板 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 
 PS：邀请好友还有返佣，一举两得 😄
 ```
@@ -176,7 +176,7 @@ PS：邀请好友还有返佣，一举两得 😄
 T+0即时结算，不是T+14
 
 试试 @LieDanBaoBot 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 
 #freelance #outsourcing #USDT
 ```
@@ -192,7 +192,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 你也能做到！
 
 注册送$5红包 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 
 #passiveincome #referral #crypto
 ```
@@ -209,7 +209,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 6个月零资金损失案例
 放心用！
 
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 
 #security #trust #blockchain
 ```
@@ -244,7 +244,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 
 真心推荐给需要外包的朋友！
 注册送$5红包 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 
 #outsourcing #costsaving #freelancer
 ```
@@ -272,7 +272,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 
 如果你想摆脱平台剥削
 试试猎单宝 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 
 #freelancer #uidesigner #sidehustle
 ```
@@ -403,7 +403,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 使用我的链接注册，立即获得$5 USDT红包
 完成首笔交易，再送$10 USDT
 
-👉 立即开始：https://t.me/LieDanBaoBot?start=YOUR_CODE
+👉 立即开始：https://t.me/Chinaquanbot?start=YOUR_CODE
 
 有任何问题，欢迎回复本邮件咨询。
 
@@ -519,7 +519,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 名额有限，先到先得！
 
 立即注册 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 ```
 
 ### 活动2：邀请排行榜
@@ -555,7 +555,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 错过再等一个月！
 
 立即行动 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 ```
 
 ---
@@ -574,7 +574,7 @@ https://t.me/LieDanBaoBot?start=YOUR_CODE
 类似Fiverr，但更便宜、更快、更安全
 
 试试就知道 👇
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 ```
 
 ### Q: 安全吗？
