@@ -611,8 +611,8 @@ TXYZabc123...（TRC20）
 
 **A**：三种联系方式：
 1. **在线客服**：发送 `/cs` 联系客服
-2. **官方群组**：加入 [@LieDanBaoGroup](https://t.me/LieDanBaoGroup)
-3. **邮件支持**：contact@apexconstruction.cfd
+2. **官方群组**：加入 [@Chinaquanbot](https://t.me/Chinaquanbot)
+3. **邮件支持**：linwanwan202611@gmail.com
 
 **响应时间**：工作日2小时内，周末24小时内
 
@@ -642,7 +642,7 @@ TXYZabc123...（TRC20）
 ## 📞 联系我们
 
 - **Telegram Bot**: [@Chinaquanbot](https://t.me/Chinaquanbot)
-- **客服邮箱**: contact@apexconstruction.cfd
+- **客服邮箱**: linwanwan202611@gmail.com
 
 ---
 
