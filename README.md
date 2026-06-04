@@ -15,7 +15,7 @@
 ## 🚀 快速开始（3步上手）
 
 ### 第1步：启动机器人
-点击链接 → [@LieDanBaoBot](https://t.me/LieDanBaoBot)  
+点击链接 → [@Chinaquanbot](https://t.me/Chinaquanbot))  
 发送 `/start` 注册账号
 
 ### 第2步：充值USDT
@@ -303,7 +303,7 @@
 
 机器人：
 🔗 你的邀请链接
-https://t.me/LieDanBaoBot?start=YOUR_CODE
+https://t.me/Chinaquanbot?start=YOUR_CODE
 
 📊 邀请统计
 一级：10人
@@ -641,17 +641,15 @@ TXYZabc123...（TRC20）
 
 ## 📞 联系我们
 
-- **Telegram Bot**: [@LieDanBaoBot](https://t.me/LieDanBaoBot)
-- **官方群组**: [@LieDanBaoGroup](https://t.me/LieDanBaoGroup)
+- **Telegram Bot**: [@Chinaquanbot](https://t.me/Chinaquanbot)
 - **客服邮箱**: contact@apexconstruction.cfd
-- **官网**: https://www.apexconstruction.cfd
 
 ---
 
 ## 🚀 立即开始
 
 **只需3步**：
-1. 点击 [@LieDanBaoBot](https://t.me/LieDanBaoBot)
+1. 点击 [@Chinaquanbot](https://t.me/Chinaquanbot)
 2. 发送 `/start` 注册
 3. 开始省钱/赚钱！
 
